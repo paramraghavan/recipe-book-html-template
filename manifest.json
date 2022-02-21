@@ -1,0 +1,16 @@
+{
+    "name": "Cookbook",
+    "short_name": "Cookbook",
+    "start_url": "/",
+    "display": "standalone",
+    "background_color": "palevioletred",
+    "theme_color": "red",
+    "description": "This is  a vegetarian cook book",
+    "icons": [
+        {
+            "src": "images/icon.png",
+            "sizes": "192x192",
+            "type": "image/png"
+        }
+    ]
+}
