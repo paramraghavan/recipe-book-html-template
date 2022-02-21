@@ -5,7 +5,7 @@
     "display": "standalone",
     "background_color": "palevioletred",
     "theme_color": "red",
-    "description": "This is  a vegetarian cook book",
+    "description": "This is  a vegetarian cookbook",
     "icons": [
         {
             "src": "images/icon.png",
