@@ -4,8 +4,8 @@ Recipe book is a responsive Bootstrap 4 template.
 
 ![screenshot](resources/screenshot.png)
 
-[Click here for the demo](https://jraleman.com/recipe-book-html-template)
-
+<!-- [Click here for the demo](https://jraleman.com/recipe-book-html-template) -->
+[Click here for the site](https://s3.amazonaws.com/ygpsquare.com/storefront/5c4512050224d161c91a3ee4ff964c711c7c35c42238997969874e4c66efcd36/index.html)
 ## Dependencies
 
   - [animate.css](https://github.com/daneden/animate.css)
