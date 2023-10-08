@@ -14,3 +14,5 @@
 - Add the above to the fry pan
 - Switch off gas and add  the fried florets to this fry pan and mix it well
 - Serve after an hour or 2
+- Enjoy!
+- <img title="gobi manchurian" alt="Alt text" src="/images/gobi-manchuirian.png">
