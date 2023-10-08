@@ -1,5 +1,5 @@
 # Gobi Manchurian
-- I full cauliflower 
+- One full cauliflower 
 - Chop it into small florets
 - Add the chopped florets to a bowl, to this add 3/4 spoons is of ginger garlic paste, some salt (no too mush as the soy sauce also has salt), turmeric and red chili powder
 - Marinate - Mix the above well and keep it aside for 1 to 2 hours
