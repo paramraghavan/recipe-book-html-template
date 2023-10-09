@@ -12,9 +12,11 @@
 - And keep it in low
 - Add 2 table spoon soy sauce(i used dark soy sauce,becasue that's what i had), 2 tablespoon chilli sauce(i used chiili-garlic sauce), 2 tablespoons ketchup( if you don’t have vinegar),
   alter the proportions as need be. Add these to the garlic fry pan, saute it
-- Then take half onion  and 1/4 capsicum chop it ( don’t to chop it fine)
+- Then take half onion and 1/4 capsicum chop it ( don’t to chop it fine)
+> Assuming small to medium size onion. 1/2 capsicum if it's small size capsicum
 - Add the above to the fry pan
 - Switch off gas and add  the fried florets to this fry pan and mix it well
 - Serve after an hour or 2
 - Enjoy!
+> All these measurements are approximate, you may vary as need be in proportions, this reciepe is very forgiving one
 - <img title="gobi manchurian" alt="Alt text" src="/images/gobi-manchuirian.png">
