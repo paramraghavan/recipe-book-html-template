@@ -20,3 +20,4 @@
 - Enjoy!
 > All these measurements are approximate, you may vary as need be in proportion, this reciepe is very forgiving one
 - <img title="gobi manchurian" alt="Alt text" src="/images/gobi-manchuirian.png">
+>> receipe source: Revathy Narayanan,Herndon
