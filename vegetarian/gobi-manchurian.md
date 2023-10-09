@@ -18,5 +18,5 @@
 - Switch off gas and add  the fried florets to this fry pan and mix it well
 - Serve after an hour or 2
 - Enjoy!
-> All these measurements are approximate, you may vary as need be in proportions, this reciepe is very forgiving one
+> All these measurements are approximate, you may vary as need be in proportion, this reciepe is very forgiving one
 - <img title="gobi manchurian" alt="Alt text" src="/images/gobi-manchuirian.png">
