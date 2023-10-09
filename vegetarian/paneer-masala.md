@@ -27,7 +27,7 @@ Chopped Capsicum
 Curd – 2 tbsp
 Garam Masala – 1/2 tsp
 Kasoori Methi – 1 tsp
-Ginger Julienne
+Ginger Julienne/grated
 Chopped Coriander
 Water
 Chopped Coriander
@@ -54,11 +54,13 @@ After the Paneer turns golden, turn off the flame and transfer it to a plate.
 Next step – add one chopped capsicum into the pan and roast a little.
 After roasting a little, transfer the capsicum to a plate.
 After two whistles, turn off the flame and let the pressure release.
-After the pressure is releases, remove the lid and mash the gravy with the help of a masher.18 – Next step – add 2 tbsp of whisked curd and mix well.
-Next step – turn on the flame, add capsicum & cheese, and mix well.
-Next step – add 1/2 tsp of garam masala, 1 tsp of kasoori methi, ginger julienne, and chopped coriander and mix well.
+After the pressure is releases, remove the lid and mash the gravy with the help of a masher.
+Let the gravy cool down 
+Next step – by now the gravy has cooled down(this way the curd won't get disintegrated), add 2 tbsp of whisked curd and mix well.
+Next step – turn on the flame, add capsicum & paneer, and mix well.
+Next step – add 1/2 tsp of garam masala, 1 tsp of kasoori methi, grated ginger, and chopped coriander and mix well.
 Next step – cover the lid and cook on a medium flame for 2 minutes.
-After 2 minutes, turn off the flame and garnish it with ginger julienne, split green chilli, and coriander.
+After 2 minutes, turn off the flame and garnish it with ginger grated, split green chilli, and coriander.
 Now your perfect Instant Paneer Masala is completely ready, and you can enjoy it.
 ```
 - [Video](https://www.youtube.com/watch?v=DLLyDpYGSss)
