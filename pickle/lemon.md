@@ -20,7 +20,7 @@
 ### make spice for pickle
 ```
 - Set aside
-- Red dry chilies 12 to 16(if you want it spicier) 
+- Red dry chillies 12 to 18(if you want it spicier) 
 - Methi 1 teaspoon
 - Asfodita(little amount)
 - Dry roast above
