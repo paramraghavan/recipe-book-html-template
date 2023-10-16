@@ -10,7 +10,7 @@
 - If possible remove the seeds
 - Add all the other 8 lemons this way into the jar
 - Add salt and turmeric to taste
-- I had filled up 2 bottles 28oz  about more than half 
+- I had filled up 2 bottles 28oz  little more than half 
 - Add lemon concentrate to the jar/bottle, enough to submerge the lemons
 - Let it stay for 3 days
 - Shake the jar every day
