@@ -27,12 +27,17 @@
 - Let it cool down
 - Grind the above
 ```
-- Heat sesame oil on low heat
-- Some methi seeds and red chili powder
-- Once the oil heats up add the method seeds and chill powder
-- Add the lemon from the bottle
-- Heat it well to a boil
+
+# Marinate pickle with oil and spices
+- Amount of Sesame oil  -  1/4th the amount of lemon
+- Pour oil into pan.
+- Heat sesame oil, put some sesame seeds, when the seeds sputter, set oil wok/pan aside
+- Move it down to cooler stove or on side
+- Add the spice ground above to oil
+- Then put the picle and mix it well
 - Let it cool down
-- Now add half spoon sugar
-- Onceit all cooled down
-- Put it back into the jar and eat after couple of weeks
+- pour it back into the bottle/jar
+- 1 spoon methi seeds and red chili powder
+- Set it aside for couplo of weeks, shake the bottle/jar every day
+- After 2/3 weeks it is ready to be consumed.
+
