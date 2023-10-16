@@ -1,7 +1,7 @@
 # Lemon Pickle
 
 ## Step 1
-- Large Yellow lemons 
+- Large Yellow lemons in NorthAmerica
 - Used 9
 - Cut lemon into 2 halves
 - Take one half and cut it into 8 
@@ -14,6 +14,10 @@
 - Add lemon concentrate to the jar/bottle, enough to submerge the lemons
 - Let it stay for 3 days
 - Shake the jar every day
+> **Note:** For yellow lemons in India , Cut lemon into 2 halves and Take one half and cut it into 8
+> No need to add lemon concentrate and no need to even squeeze the lemons, the skin of indian lemons are way thinner than the one we get in a
+> North America
+
 
 ## Step 2
 - 3 days later
