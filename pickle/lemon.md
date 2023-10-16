@@ -28,7 +28,8 @@
 - Grind the above
 ```
 
-# Marinate pickle with oil and spices
+## Step3
+### Marinate pickle with oil and spices
 - Amount of Sesame oil  -  1/4th the amount of lemon in the jar/bottle
 - Pour oil into pan/wok.
 - Heat sesame oil, put some sesame seeds, when the seeds sputter, set oil wok/pan aside
@@ -38,6 +39,8 @@
 - Let it cool down
 - Pour it back into the bottle/jar
 - **Add a teaspoon full of sugar to the jar and mix well**
-- Set it aside for couplo of weeks, shake the bottle/jar every day
+
+## Step4
+- Set it aside for couple of weeks, shake the bottle/jar every day
 - After 2/3 weeks it is ready to be consumed.
 
