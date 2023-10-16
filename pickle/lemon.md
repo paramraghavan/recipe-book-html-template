@@ -21,7 +21,7 @@
 ```
 - Set aside
 - Red dry chilies 12 to 16(if you want it spicier) 
-- Methi 1 spoon
+- Methi 1 teaspoon
 - Asfodita(little amount)
 - Dry roast above
 - Let it cool down
@@ -29,15 +29,15 @@
 ```
 
 # Marinate pickle with oil and spices
-- Amount of Sesame oil  -  1/4th the amount of lemon
-- Pour oil into pan.
+- Amount of Sesame oil  -  1/4th the amount of lemon in the jar/bottle
+- Pour oil into pan/wok.
 - Heat sesame oil, put some sesame seeds, when the seeds sputter, set oil wok/pan aside
 - Move it down to cooler stove or on side
 - Add the spice ground above to oil
 - Then put the picle and mix it well
 - Let it cool down
 - pour it back into the bottle/jar
-- 1 spoon methi seeds and red chili powder
+- **Add a teaspoon full of sugar to the jar and mix well**
 - Set it aside for couplo of weeks, shake the bottle/jar every day
 - After 2/3 weeks it is ready to be consumed.
 
