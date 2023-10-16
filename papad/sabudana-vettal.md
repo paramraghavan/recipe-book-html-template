@@ -1,0 +1,11 @@
+# Sabudana Vettal
+- Soak 1 cup sabudana over night in water
+- Drain the water
+- Add water to wok, let heat up , add the sabudana to it
+- Add 2 green chillies or more and salt to taste and a pinch of asofedita
+- Let it cook really well intoi a watery soup
+- let it cool down
+- Once it cool, get hold of parchment paper
+- lay the parchment paaper on the floor
+- The  cooked sabudana will be of kanji consistency
+- use a small ladle and pour it on the
