@@ -7,4 +7,4 @@ Griding rice and coconut with minimum water. For 1 cup rice probably 1/2 to 1 cu
 ```
 - [Rava Dosai](http://htmlpreview.github.io/?https://github.com/paramraghavan/cookbook/blob/master/tiffin/rava-dosai.html)
 - [Crispy Rava Dosai](http://htmlpreview.github.io/?https://github.com/paramraghavan/cookbook/blob/master/tiffin/crispy-rava-dosai.html)  
-- https://hebbarskitchen.com/coconut-dosa-recipe-thengai-dosa/ - this needs fermentation of the batter
+- https://hebbarskitchen.com/coconut-dosa-recipe-thengai-dosa/ - this needs fermentation of the batter.
