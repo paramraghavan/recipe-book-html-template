@@ -1,0 +1,5 @@
+- [Boondi Ladoo](http://htmlpreview.github.io/?https://github.com/paramraghavan/cookbook/blob/master/snacks/boondi-ladoo.html)
+- [Kaju Katli](http://htmlpreview.github.io/?https://github.com/paramraghavan/cookbook/blob/master/snacks/kaju-katli.html)
+- [Peanut Ladoo](https://github.com/paramraghavan/cookbook/blob/master/snacks/peanut-ladoo.html)
+- [Coconut Burfi](https://github.com/paramraghavan/cookbook/blob/master/snacks/coconut-burfi.md)
+- [Ribbon Pakoda](https://github.com/paramraghavan/cookbook/blob/master/snacks/ribbon-pakoda.md)
