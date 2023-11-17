@@ -1,6 +1,6 @@
 # Jal jeera
--  2 ltr ginger  ale
-- 3/4 th packet jal jeera
+- 2 ltr Ginger Ale
+- 3/4 th packet Jal Jeera(available at Indian grocery stores)
 - Ice as needed
 - Squeeze 1 lemon, as per taste - optional
 - Chopped mint leaves
