@@ -1,14 +1,16 @@
 # Dosa/Idli Batter
 
 ## Ingredients:
-- 3 cups of rice (typically, parboiled rice or idli rice)  
-- 1 cup regular rice
+- Dosa
+  - 2 cups of rice (typically, parboiled rice or idli rice)  
+  - 1 cup regular rice
+- Idli
+  - 3 cups of rice (typically, parboiled rice or idli rice)   
 - 1 cup of urad dal gota(full black gram)
 - 1 - 1.5 teaspoon of fenugreek seeds (optional, for fermentation)
 - Salt to taste - 1-2 teaspoon
 - Water as required
-> Note:
->> For idli use 4 cups of idli rice instead of the above 3 parts idli rice + 1 part regular rice
+
 
 
 ## Instructions:
