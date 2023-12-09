@@ -31,7 +31,7 @@
 8. Add salt 
 9. And bring to a boil on medium-low heat for 25-30 minutes until it thickens slightly.
 10. Optionally, add rice flour and jaggery, simmering for another 4-5 minutes.
-11.  Last step , dry roast sesame and grind the sesame and add to above.
+11. Last step , dry roast sesame and grind the sesame and add to above.
 
  </pre> 
         
