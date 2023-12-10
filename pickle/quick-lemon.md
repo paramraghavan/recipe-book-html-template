@@ -15,7 +15,7 @@
 ### make spice for pickle
 ```
 - Set aside
-- Red dry chillies 7-12(if you want it spicier) 
+- Red dry chillies 6-9(if you want it spicier) 
 - Methi 1 teaspoon
 - Asfodita(little amount)
 - Dry roast above
@@ -30,9 +30,10 @@
 - Heat sesame oil, put 1 teaspoon sesame seeds, when the seeds sputter.
 - Lower the stove heat.
 - Add the spice ground above to oil
+- Cook for some time in the work, do not dehydrate it.
 - Then pour the pickle into the wok/pan and mix well
 - Let it cool down
-- **Add a teaspoon full of sugar to the jar and mix well**
+- **Add a 1/2 teaspoon full of sugar to the jar and mix well**
 
 ## Step4
 - Set it aside in the wok for the day
