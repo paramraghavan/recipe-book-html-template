@@ -7,11 +7,11 @@
 - Methi/fenugreek 1 teaspoon
 - 1/4 teaspoon Asfodita powder(little amount)
 - 1 teaspoon mustard seeds
-- 1/2th teaspoon sugar(optional)
 - 1/4 teaspoon turmeric
 - 1.25 to 2 teaspoon salt(as needed)
-- 1/2 teaspoon red chilli powder(optional, amoount a per taste)
 - 4/5 table spoon sesame oil
+- 1/2 teaspoon red chilli powder(optional, amount a per taste)  
+- 1/2th teaspoon sugar(optional)
   
 ## Step 1
 - Large Yellow lemons in NorthAmerica
