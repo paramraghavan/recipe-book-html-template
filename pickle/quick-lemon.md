@@ -9,7 +9,7 @@
 - 1 teaspoon mustard seeds
 - 1/2th teaspoon sugar(optional)
 - 1/4 teaspoon turmeric
-- 2 teaspoon salt(as needed)
+- 1.25 to 2 teaspoon salt(as needed)
 - 1/2 teaspoon red chilli powder(optional, amoount a per taste)
 - 4/5 table spoon sesame oil
   
