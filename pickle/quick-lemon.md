@@ -32,7 +32,7 @@
 - Set aside
 - Red dry chillies 6-9( more if you want it spicier) 
 - Fenugreek/Methi seeds 1 teaspoon
-- Mustard seeds 1 teaspoon
+- Mustard seeds 1 teaspoon (you can skip msutard seeds in this step and directly add the seeds to the sesama oil in step3)
 - Dry roast above
 - Let it cool down
 - Grind the above
