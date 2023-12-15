@@ -28,21 +28,20 @@
 
 ## Step 2
 ### make spice for pickle
-```
 - Set aside
 - Red dry chillies 6-9( more if you want it spicier) 
 - Fenugreek/Methi seeds 1 teaspoon
-- Mustard seeds 1 teaspoon (you can skip msutard seeds in this step and directly add the seeds to the sesama oil in step3)
+- ~~I skipped this step - Mustard seeds 1 teaspoon. I directly added the seeds to the sesama oil in step3~~
 - Dry roast above
 - Let it cool down
 - Grind the above
-```
+
 
 ## Step3
 ### Marinate pickle with oil and spices
 - Amount of Sesame oil  - 4/5 table spoon
 - Pour oil into pan/wok.
-- Heat sesame oil, put few mustard seeds, when the msutard seed crackles, the oil is hot enough.
+- Heat sesame oil, put 1 teaspoon full mustard seeds, when the msutard seed crackles, the oil is hot enough.
 - Lower the stove heat.
 - Add 1/4 spoon Asofodeta cook it in the oil for a 1 minute or 2
 - Add the spice ground above to oil
